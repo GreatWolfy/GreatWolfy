@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Jake Juliano
 - 👀 I’m interested in transportation analystics and modeling
-- 📫 How to reach me jake.juliano@gmail.com
+- 📫 How to reach me jake.juliano@unc.edu
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I play clarinet, flute, and marching cymbals
 
